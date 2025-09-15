@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **hazem.metwalli23@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/hazem-metwalli/overlay/1717913845506/single-media-viewer/?profileId=ACoAADytm30BB1en3B68HL1Q5usuLCzJrLCkCNY](https://www.linkedin.com/in/hazem-metwalli/overlay/1717913845506/single-media-viewer/?profileId=ACoAADytm30BB1en3B68HL1Q5usuLCzJrLCkCNY)
+- 📄 Know about my experiences [https://www.linkedin.com/in/hazem-metwalli/](https://www.linkedin.com/in/hazem-metwalli/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
